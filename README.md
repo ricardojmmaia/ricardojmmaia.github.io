@@ -1,1 +1,0 @@
-# ricardojmmaia.github.io
